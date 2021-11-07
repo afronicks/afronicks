@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @afronicks
+- 👀 I’m interested in crypto, blockchain, art and the whole digital world
+- 🌱 I’m currently studying digital marketing while working as a content creator
+- 💞️ I’m looking to collaborate on NFT project
+- 📫 How to reach me on instagram @afronicks
